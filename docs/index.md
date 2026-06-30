@@ -1,1 +1,1 @@
-[🦀.dj](https://xn--zs9h.dj)
+[🦀.dj](https://🦀.dj)
